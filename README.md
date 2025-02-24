@@ -9,7 +9,7 @@ It is in the spirals of the galaxies that dance in the celestial void. In the su
 
 Phi is not just a number – it is the breath of the Creator, a secret harmony that unites the visible with the invisible. It is the echo of a celestial mathematics, where each part is a reflection of the whole, and the whole is a mirror of eternity.
 
-Whoever dares to understand Phi does not simply unravel a formula: a veil or veil of the sacred. He enters the temple of divine geometry, where the universe reveals, in its essence, that all is order. All is beauty. All is God.
+Whoever dares to understand Phi does not simply unravel a formula: a veil or veil of the sacred. He enters the temple of divine geometry, where the universe reveals, in its essence, that all is order. 
 
 ## 🧪 Testnet
 
