@@ -14,12 +14,6 @@ Whoever dares to understand Phi does not simply unravel a formula: a veil or vei
 
 0x9bD949F070adf0eed6Ed21bE5667C7C30C57ABbC
 
-## 🧪 Testnet
-
-Try our token on the testnet:
-
-[🔗 Click here to test the token on the Testnet](https://v4lm1r83.github.io/tokenphitestnet/)
-
 ## 📄 White Paper
 
 Read the [Project White Paper](./whitepaper.pdf).
